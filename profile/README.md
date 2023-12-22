@@ -1,7 +1,7 @@
 ## Hi there 👋
-
+I am a native writer and poet, I don't know much about coding 
 <!--
-
+But I am a talented and capable ideator 
 **Here are some ideas to get you started:**
 
 🙋‍♀️ A short introduction - what is your organization all about?
